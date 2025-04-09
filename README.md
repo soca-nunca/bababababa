@@ -1,3 +1,0 @@
-estudo  
-real
-oficial
